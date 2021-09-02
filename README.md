@@ -1,1 +1,2 @@
 # rajma-chawal
+Rājmā[2] [raːdʒmaː] (Hindi: राजमा, Urdu: راجما‎), also known as Rāzmā or Lal Lobia, is a vegetarian dish, originating from the Indian subcontinent, consisting of red kidney beans in a thick gravy with many Indian whole spices, and is usually served with rice. It is a part of regular diet in India, Nepal and Punjab province of Pakistan.[1] The dish developed after the red kidney bean was brought to the Indian subcontinent from Mexico.[3] Rajma chawal is kidney beans served with boiled rice.
